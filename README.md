@@ -6,4 +6,9 @@ Você pode entrar em contato comigo 📫
 gui16997061440@gmail.com
 
 @guilherme miguel
+
+
+
+
+
 ![](https://media1.tenor.com/m/bGS2OhhN9tsAAAAC/hello-gojo-satoru.gif)
